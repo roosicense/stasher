@@ -1,1 +1,1 @@
-https://royalcheaters.com/
+royalcheaters.com
